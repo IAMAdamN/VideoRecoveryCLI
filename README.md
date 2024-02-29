@@ -65,9 +65,9 @@ If the file isn't playable it might be because the file type is unsupported, the
 #filerecovery #mp4 #corruptvideo
 -------------------------------------------------------------------------------------
 
-►Facebook: [@IAMZenju](https://fb.gg/IAMZenju)
+►Facebook: [@NatadTech](https://facebook.com/NatadTech)
 
-►Instagram: [@IAMZenju](https://www.instagram.com/iamzenju/)
+►Instagram: [@NatadTech](https://instagram.com/NatadTech/)
 
 -----------------------------------------------------------------------------------------------
 
